@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kanchanrawat20
 - 👀 I’m interested in Coding
-- 🌱 I’m currently Pursuig Btech Cse
+- 🌱 I’m currently Pursuing Btech Cse
 - 💞️ I’m looking to collaborate 
 - 😄 Pronouns: She
   
